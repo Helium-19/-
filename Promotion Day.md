@@ -1,10 +1,10 @@
 **原作：**《Rainbow Six Siege 彩虹六号围攻》
 
-**配对：**Montagne/Rook/Doc
+**配对：** Montagne/Rook/Doc
 
-**分级：**Explicit
+**分级：** Explicit
 
-**警告：**3匹内容；OOC
+**警告：** 3匹内容；OOC
 
 **Summary：**Julien终于从新进晋升为正式干员的那天，发生了一些疯狂的事。
 
