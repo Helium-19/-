@@ -1,22 +1,22 @@
-原作：《Rainbow Six Siege 彩虹六号围攻》
+**原作：**《Rainbow Six Siege 彩虹六号围攻》
 
-配对：Montagne/Rook/Doc
+**配对：**Montagne/Rook/Doc
 
-分级：Explicit
+**分级：**Explicit
 
-警告：3匹内容；OOC
+**警告：**3匹内容；OOC
 
-Summary：Julien终于从新进晋升为正式干员的那天，发生了一些疯狂的事。
+**Summary：**Julien终于从新进晋升为正式干员的那天，发生了一些疯狂的事。
 
-Note：纯粹的小炒肉习作，内含非常见play，请注意避雷。
-
-
+**Note：**纯粹的小炒肉习作，内含非常见play，请注意避雷。
 
 
-Promotion Day
 
 
- 上
+## Promotion Day
+
+
+### 上
 
  
 
